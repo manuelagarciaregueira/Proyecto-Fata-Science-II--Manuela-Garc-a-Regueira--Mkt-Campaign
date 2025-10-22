@@ -1,1 +1,1 @@
-# Proyecto-Fata-Science-II--Manuela-Garc-a-Regueira--Mkt-Campaign
+# Proyecto-Data-Science-II--Manuela-Garc-a-Regueira--Mkt-Campaign
